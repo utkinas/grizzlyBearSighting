@@ -1,6 +1,6 @@
 # Fall Safety: Bear Hyperphagia
 
-Bears are in **hyperphagia** — the pre-hibernation feeding period from mid-August through early November. During this time, they can eat 15,000-20,000 calories per day and are more active than at any other time of year.
+Bears are in **hyperphagia** — the pre-hibernation feeding period from mid-August through late November. During this time, they can eat 15,000-20,000 calories per day and are more active than at any other time of year.
 
 ## While hiking
 
