@@ -34,5 +34,5 @@ Late summer and fall see the highest number of bear-human encounters, bear-vehic
 ## Learn more about hyperphagia
 
 - [National Park Service — Bear](https://www.nps.gov/articles/bears-winter.htm)
-- [Nevada Department of Wild LIfe — Bears](https://www.ndow.org/press-releases/ndow-names-cody-mckee-game-division-administrator-3/)
+- [Nevada Department of Wild LIfe — Bears Hyperphagia](https://www.ndow.org/press-releases/ndow-names-cody-mckee-game-division-administrator-3/)
 
