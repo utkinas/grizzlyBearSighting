@@ -10,6 +10,13 @@ Bears come out of their dens in **spring (April through mid-June)** hungry, lean
 - Early vegetation (grasses, forbs, skunk cabbage) draws bears into open areas you might not normally expect them
 - Winter-killed wildlife (carrion) attracts bears; keep distance from any carcass
 
+## While driving in bear country
+
+- Reduce speed, especially at dawn and dusk
+- Watch for roadside grazing in open meadows
+- Mother bears often cross roads with cubs — if you see one, more may follow
+- Never approach or feed roadside bears
+
 ## While hiking
 
 - Make **continuous noise** while hiking, especially in brushy or wind-noisy terrain
@@ -19,12 +26,7 @@ Bears come out of their dens in **spring (April through mid-June)** hungry, lean
 - Avoid traveling cross-country off trails early in the season
 - Give any bear a wide berth, especially if cubs are present
 
-## While driving in bear country
 
-- Reduce speed, especially at dawn and dusk
-- Watch for roadside grazing in open meadows
-- Mother bears often cross roads with cubs — if you see one, more may follow
-- Never approach or feed roadside bears
 
 ## If you encounter a bear
 
