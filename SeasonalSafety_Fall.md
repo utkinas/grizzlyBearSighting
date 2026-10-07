@@ -8,7 +8,7 @@ Bears are in **hyperphagia** — the pre-hibernation feeding period from mid-Aug
 - Scan both sides of the road, including the shoulder and roadside brush
 - Mother bears often cross with cubs — if you see one, assume more are following
 - **Never stop and exit your vehicle** to photograph roadside bears
-- Collision risk peaks in late summer and early fall when bears travel more
+- Collision risk peaks in late summer and fall when bears travel more
 - At night, watch for eye-shine from the roadside
   
 ## While hiking
