@@ -33,6 +33,6 @@ Late summer and fall see the highest number of bear-human encounters, bear-vehic
 
 ## Learn more about hyperphagia
 
-- [National Park Service — Bear Biology](https://www.nps.gov/subjects/bears/bear-biology.htm)
+- [National Park Service — Bear Biology](https://www.nps.gov/articles/bears-winter.htm)
 - [Yellowstone National Park — Bears](https://www.nps.gov/yell/learn/nature/bears.htm)
 
