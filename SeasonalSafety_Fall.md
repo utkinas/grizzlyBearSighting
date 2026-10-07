@@ -2,6 +2,15 @@
 
 Bears are in **hyperphagia** — the pre-hibernation feeding period from mid-August through late November. During this time, they can eat 15,000-20,000 calories per day and are more active than at any other time of year.
 
+## While driving in bear country
+
+- **Reduce your speed** especially on backroads and at dawn and dusk
+- Scan both sides of the road, including the shoulder and roadside brush
+- Mother bears often cross with cubs — if you see one, assume more are following
+- **Never stop and exit your vehicle** to photograph roadside bears
+- Collision risk peaks in late summer and early fall when bears travel more
+- At night, watch for eye-shine from the roadside
+  
 ## While hiking
 
 - Bears are now active throughout the day, not just dawn and dusk
@@ -12,14 +21,7 @@ Bears are in **hyperphagia** — the pre-hibernation feeding period from mid-Aug
 - Watch for fresh signs: scat, tracks, overturned rocks, torn-up logs
 - Avoid dense berry patches at dawn and dusk
 
-## While driving in bear country
 
-- **Reduce your speed** especially on backroads and at dawn and dusk
-- Scan both sides of the road, including the shoulder and roadside brush
-- Mother bears often cross with cubs — if you see one, assume more are following
-- **Never stop and exit your vehicle** to photograph roadside bears
-- Collision risk peaks in late summer and early fall when bears travel more
-- At night, watch for eye-shine from the roadside
 
 ## If you encounter a bear
 
