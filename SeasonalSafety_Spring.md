@@ -33,3 +33,9 @@ Open the **Bear Safety** page in this app for species-specific guidance on grizz
 ## Why this matters
 
 Spring is a critical, high-encounter period. Bears are rebuilding reserves after months of hibernation, mothers are introducing cubs to their surroundings, and human recreation in the backcountry picks up. Awareness during these weeks protects both people and bears.
+
+## Learn more about bear emergence
+
+- [National Park Service — Bear Biology](https://www.nps.gov/subjects/bears/bear-biology.htm)
+- [Yellowstone National Park — Bears](https://www.nps.gov/yell/learn/nature/bears.htm)
+
