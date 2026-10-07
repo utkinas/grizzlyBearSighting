@@ -25,11 +25,12 @@ Bears are in **hyperphagia** — the pre-hibernation feeding period from mid-Aug
 
 Open the **Bear Safety** page in this app for species-specific guidance on grizzly, black, and polar bear encounters.
 
+## Why this matters
+
+Late summer and fall see the highest number of bear-human encounters, bear-vehicle collisions, and defensive bear responses of any season. Being extra alert now — on the trail and on the road — directly keeps both people and bears safer.
+
 ## Learn more about hyperphagia
 
 - [National Park Service — Bear Biology](https://www.nps.gov/subjects/bears/bear-biology.htm)
 - [Yellowstone National Park — Bears](https://www.nps.gov/yell/learn/nature/bears.htm)
 
-## Why this matters
-
-Late summer and fall see the highest number of bear-human encounters, bear-vehicle collisions, and defensive bear responses of any season. Being extra alert now — on the trail and on the road — directly keeps both people and bears safer.
